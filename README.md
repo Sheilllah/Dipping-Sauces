@@ -1,4 +1,4 @@
-# 🍯 Dipping Sauces: Easy & Delicious Homemade Recipes (2024)  
+# 🍯 Dipping Sauces: Easy & Delicious Homemade Recipes (2025)  
 
 Looking for the **perfect dipping sauce** to pair with your favorite snacks and meals? Whether you love **spicy, creamy, tangy, or sweet**, these homemade sauces will take your food to the next level!  
 
